@@ -1,2 +1,2 @@
 # CIA2-Assignment-EDPRE
-My self Pratyush Kumar, Btech 1st year student from EEE branch
+My self Pratyush Kumar, Btech student from EEE branch
